@@ -1,1 +1,1 @@
-![...](http://invidget.switchblade.xyz/Qc9xfYPwkS)
+![...](http://invidget.switchblade.xyz/Qc9xfYPwkS).
