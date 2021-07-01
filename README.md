@@ -7,7 +7,7 @@ Sık sık takıldığım tek bir sunucu var orası da [Rina](https://discord.gg/
 <hr>
 
 <div align="center">
-  <img src="https://why-am-i-he.re/531v6XDQu" height="70"/>
+  <img src="https://why-am-i-he.re/531v6XDQu">
   <br>
   <br>
 </div>
