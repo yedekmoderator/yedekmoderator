@@ -5,3 +5,8 @@ Buraya göz attığın için teşekkürler, bu profili sevdiysen lütfen, <kbd> 
 Sık sık takıldığım tek bir sunucu var orası da [Rina](https://discord.gg/DGtAM8bj8u) gelirsen çok sevinirim.
 
 <hr>
+
+<div align="center">
+  <img src="http://invidget.switchblade.xyz/813430135008657420" height="80"/>
+  <br>
+  <br>
