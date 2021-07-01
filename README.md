@@ -1,1 +1,1 @@
-![...](http://invidget.switchblade.xyz/https://discord.gg/DGtAM8bj8u)
+<kbd> Profilime <kbd> hoş geldin!
