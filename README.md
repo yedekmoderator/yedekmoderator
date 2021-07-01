@@ -10,3 +10,4 @@ Sık sık takıldığım tek bir sunucu var orası da [Rina](https://discord.gg/
   <img src="http://invidget.switchblade.xyz/813430135008657420" height="80"/>
   <br>
   <br>
+</div>
